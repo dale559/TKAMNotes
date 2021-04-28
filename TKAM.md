@@ -63,7 +63,6 @@
 * Aticus used to be the "deadest shot in macomb county"
 
 ## Motif
-*
 
 ## Quotes
 >  Atticus said to Jem one day, “I’d rather you shot at tin cans in the back yard, but I know you’ll go after birds. Shoot all the bluejays you want, if you can hit ‘em, but  remember it’s a sin to kill a mockingbird.” 
@@ -77,6 +76,32 @@
 > Jem said, “I reckon if he’d wanted us to know it, he’da told us. If he was proud of  it, he’da told us.” “Maybe it just slipped his mind,” I said. “Naw, Scout, it’s something you wouldn’t understand. Atticus is real old, but I  wouldn’t care if he couldn’t do anything—I wouldn’t care if he couldn’t do a  blessed thing.”
 
 # Chapter 11
+
+## Reading Notes
+
+* Ms Dubose is old and hurting and is mean when kids walk by
+* Aticus lets her children run wild acording to Ms Dubose
+* Jems insults got to him so he destoryed Ms Dobose yard and yanked scouts hair and brok his baton
+* Atticus thought that scout would become more enraged about for being made fun of but it was jem
+* jem has to read to every day after school and saturday for a month
+* scout is discusted by ms dubao
+* they had been staying slightly longer every day
+* Ms. Dubose died and she was a morphine adict
+* she was trying to use the reading as a distraction
+
+# Quotes
+
+>“Easy does it, son,” Atticus would say. “She’s an old lady and she’s ill. You just hold your head high and be a gentleman. Whatever she says to you, it’s your job not to let her make you mad.” (103)
+
+> “Don’t you contradict me!” Mrs. Dubose bawled. “And you—” she pointed an arthritic finger at me—“what are you doing in those overalls? You should be in adress and camisole, young lady! You’ll grow up waiting on tables if somebody doesn’t change your ways—a Finch waiting on tables at the O.K. Café—hah!” I was terrified. The O.K. Café was a dim organization on the north side of the square. I grabbed Jem’s hand but he shook me loose. “Come on, Scout,” he whispered. “Don’t pay any attention to her, just hold your head high and be a gentleman.” But Mrs. Dubose held us: “Not only a Finch waiting on tables but one in the courthouse lawing for niggers!”
+
+>said Atticus, “when summer comes you’ll have to keep your head about far worse things... it’s not fair for you and Jem, I know that, but sometimes we have to make the best of things, and the way we conduct ourselves when the chips are down—well, all I can say is, when you and Jem are grown, maybe you’ll look back on this with some compassion and some feeling that I didn’t let you down. This case, Tom Robinson’s case, is something that goes to the essence of a man’s conscience—Scout, I couldn’t go to church and worship God if I didn’t try to help that man.” (108)
+
+> I sometimes wondered exactly what made Jem do it, what made him break the bonds of “You just be a gentleman, son,” and the phase of selfconscious rectitude he had recently entered. Jem had probably stood as much guff about Atticus lawing for niggers as had I, and I took it for granted that he kept his temper—he had a naturally tranquil disposition and a slow fuse. At the time, however, I thought the only explanation for what he did was that for a few minutes he simply went mad.
+
+>“They’re certainly entitled to think that, and they’re entitled to full respect for their opinions,” said Atticus, “but before I can live with other folks I’ve got to live with myself. The one thing that doesn’t abide by majority rule is a person’s conscience.” (108)
+		 	 	 						
+>“Read to her?” “Yes sir. She wants me to come every afternoon after school and Saturdays and read to her out loud for two hours. Atticus, do I have to?” “Certainly.” (109)
 
 # Chapter 12
 
@@ -212,5 +237,105 @@
 
 > A soft husky voice came from the darkness above: “They gone?” Atticus stepped back and looked up. “They’ve gone,” he said. “Get some sleep,  Tom. They won’t bother you any more.”
 
+# Chapter 16
 
-Stopped at: 6:22:30
+## Reading Notes
+
+* They return home from the linch mob and they sneak in to not tell the aunt
+* Aticus debriefs the mob last night and always speaks the truth and encurages them to fucus on the bigger picture and how it relates to the climate they live in
+* Miss Maudy refused to go to the trial but Miss Steffenie did
+* Dolfis Raimond likes black people more than white people his old wife killed herself after learning to of his black mistress
+* The court house is super messed up and after it burned down didn't fix it but built around it.
+* they are mad for atticus for trying to deffend him not for defending him but atticus hadn't told scout that
+* Judge Taylor who was well educated but tried to make it seem casual but he was actualy a decent judge
+
+## Motif
+
+## Quotes
+
+> Atticus said he was right glad his disgraces had come along, but Aunty said, “Nonsense, Mr. Underwood was there all the time.”“You know, it’s a funny thing about Braxton,” said Atticus. “He despises Negroes, won’t have one near him.
+
+> he waited until Calpurnia was in the kitchen, then she said, “Don’t talk like that in front of them.” “Talk like what in front of whom?” he asked. “Like that in front of Calpurnia. You said Braxton Underwood despises Negroes right in front of her.” “Well, I’m sure Cal knows it. Everybody in Maycomb knows it.”
+
+> My father put down his knife. “I don’t know of any law that says they can’t talk. Maybe if we didn’t give them so much to talk about they’d be quiet. Why don’t you drink your coffee, Scout?”
+
+> “He might have hurt me a little,” Atticus conceded, “but son, you’ll understand folks a little better when you’re older. A mob’s always made up of people, no  matter what. Mr. Cunningham was part of a mob last night, but he was still a man. Every mob in every little Southern town is always made up of people you know— doesn’t say much for them, does it?”
+
+> “You can’t sometimes, not unless you know who they are. But he’s half Raymond, all right.” “But how can you tell?” I asked. “I told you, Scout, you just hafta know who they are.” “Well how do you know we ain’t Negroes?”
+
+> “Uncle Jack Finch says we really don’t know. He says as far as he can trace back the Finches we ain’t, but for all he knows we mighta come straight out of Ethiopia  durin‘ the Old Testament.” “Well if we came out durin‘ the Old Testament it’s too long ago to matter.” “That’s what I thought,” said Jem, “but around here once you have a drop of Negro blood, that makes you all black.
+
+> I thought it odd that he hadn’t said anything to us about it— we could have used it many times in defending him and ourselves. He had to, that’s why he was doing it, equaled fewer fights and less fussing. But did that explain the town’s attitude? The court appointed Atticus to defend him. Atticus aimed to defend him. That’s what they didn’t like about it. It was confusing
+
+# Chapter 17
+
+## Reading Notes
+
+* Solid evedence from the sherrif man who interviewed the woman who got raped
+* Jem is super excited to see and makes scout quiet down
+* Atticus questions the sherriff relentlessly
+* The Ewells are incredibly poor
+* Mr. Ewell got yelled atfor being non proffesional
+* Want to know that their society is willing to live how it has been
+* Mr. Ewell claims he saw the sex happening
+* Brings up again that Mr. Ewell didn't go to a doctor
+* He frequently just agreed with the previus witness
+
+
+## Motif
+
+## Quotes
+
+> His mouth was twisted into a purposeful half-grin, and his eyes happy about, and he said something about corroborating evidence, which made me sure he was showing off
+
+> “—I seen that black nigger yonder ruttin’ on my Mayella!
+
+> Tricking lawyers like Atticus Finch took advantage of him all the time with their tricking ways
+
+
+# Chapter 18
+
+## Reacing Notes
+
+* The girl then got on the witness stand
+* conflicting evidence does not line up wheather Mr. Ewell knew who it was
+* She continues to act like she is scared to Mr. Finch
+* Atticus slowley exposes the Ewelss homelife
+* Tries to remind them that she is not trustworthy with her indecicive answeres
+* 
+
+## Motif
+
+## Quotes 
+
+> She nodded vigorously, saying, “Don’t want him doin‘ me like he done Papa, tryin’ to make him out lefthanded…”
+
+> “I don’t remember too good, but next thing I knew Papa was in the room a’standing over me hollerin‘ who done it, who done it? Then I sorta fainted an’  the next thing I knew Mr. Tate was pullin‘ me up offa the floor and leadin’ me to  the water bucket.
+
+> Slowly but surely I began to see the pattern of Atticus’s questions: from questions that Mr. Gilmer did not deem sufficiently irrelevant or immaterial to object to, Atticus was quietly building up before the jury a picture of the Ewells’ home life.
+
+> “Who beat you up? Tom Robinson or your father?” No answer
+
+# Chapter 19
+
+## Reading Notes
+
+* tom robinson strugled to hold the bible with his broken hand
+* tells the story with good manners
+* Dill started crying
+
+## Motif
+
+## Quotes
+
+> As Tom Robinson gave his testimony, it came to me that Mayella Ewell must have been the loneliest person in the world. She was even lonelier than Boo Radley, who had not been out of the house in twenty-five years.
+
+> Atticus sometimes said that one way to tell whether a witness was lying or telling the truth was to listen rather than watch
+
+> Mr. Link Deas rose from the audience and announced: “I just want the whole lot of you to know one thing right now. That boy’s worked for me eight years an‘ I ain’t had a speck o’trouble outa him. Not a speck.”
+
+> Yes, suh. I felt right sorry for her, she seemed to try more’n the rest of ‘em—” “You felt sorry for her, you felt sorry for he?” Mr. Gilmer seemed ready to rise to the ceiling
+
+> “That old Mr. Gilmer doin‘ him thataway, talking so hateful to him—” “Dill, that’s his job. Why, if we didn’t have prosecutors—well, we couldn’t have defense attorneys, I reckon.” Dill exhaled patiently. “I know all that, Scout. It was the way he said it made me sick, plain sick.”“He’s supposed to act that way, Dill, he was cross—”“He didn’t act that way when—”“Dill, those were his own witnesses.”“Well, Mr. Finch didn’t act that way to Mayella and old man Ewell when he crossexamined them. The way that man called him ‘boy’ all the time an‘ sneered at him, an’ looked around at the jury every time he answered—”“Well, Dill, after all he’s just a Negro.”
+
+> “He’s the same in the courtroom as he is on the public street.
